@@ -1,0 +1,227 @@
+# 24030316_Bùi Thị Anh Thư
+
+<aside>
+
+**HỌC KÌ DOANH NGHIỆP 1**
+
+**LỚP: 240321 - 020100412301**
+
+**HỌ VÀ TÊN: BÙI THỊ ANH THƯ**
+
+**MSSV: 24030316**
+
+</aside>
+
+<aside>
+📖
+
+Thông tin về sách
+Tên sách: “ *Đừng bao giờ đi ăn một mình”*
+Tác giả: Keith Ferrazzi và Tahl Raz
+Dịch giả: Trần Thị Ngân Tuyến
+Nhà xuất bản: Nhà xuất bản trẻ
+Năm xuất bản: 2019
+
+</aside>
+
+> Tên tiếng anh: Never eat alone
+> 
+
+![800-800_7aa8cb43-320d-4891-94b8-d77643a4025b.webp](3f125aa1-01e1-45d4-93bb-02be7c590f31.png)
+
+🌻🌻🌻
+
+> 1.  **LÝ DO LỰA CHỌN SÁCH**
+> 
+
+<aside>
+
+Đầu tiên, lý do em lựa chọn phân tích quyển sách *“ Đừng bao giờ đi ăn một mình”* vì tác phẩm đã cho em một cảm giác mới lạ ngay khi tiếp xúc, so với những cuốn sách viết về thành công thông thường, tác phẩm này có một cách kể chuyện hoàn toàn riêng. Qua ngòi viết của tác giả người đọc có thể đúc kết được những kinh nghiệm của riêng mình. Ban đầu, cái tên *“Đừng bao giờ đi ăn một mình”* có thể khiến người đọc nghĩ rằng đây là một cuốn sách nói về giao tiếp, cách làm quen hoặc cách mở rộng các mối quan hệ. Nhưng khi đọc sâu hơn, em nhận ra nội dung của sách rộng hơn rất nhiều. Tác giả không chỉ nói về việc “quen biết nhiều người”, mà tập trung vào cách một con người xây dựng, duy trì và phát triển những mối quan hệ có ý nghĩa trong học tập, công việc cũng như cuộc sống.
+
+Điều này đặc biệt phù hợp với em trong bối cảnh đang là sinh viên năm ba. Đây là giai đoạn mà việc học trên lớp vẫn quan trọng, nhưng đồng thời sinh viên cũng bắt đầu phải suy nghĩ nghiêm túc hơn về thực tập, công việc sau khi ra trường, cách làm việc với người khác và cách xây dựng vị trí của mình trong môi trường nghề nghiệp. Vì vậy, một cuốn sách đặt trọng tâm vào con người và các mối quan hệ khiến em cảm thấy gần với những vấn đề mà một sinh viên sắp bước vào môi trường làm việc thực tế sẽ phải đối diện.
+
+Cấu trúc của sách cũng cho thấy nội dung không chỉ dừng ở những mẹo giao tiếp. Sách được chia thành bốn phần lớn: Xác định quan điểm; Các kỹ năng; Biến nối kết thành bạn đồng hành; Trao đổi – cho và nhận. Bên trong đó có các chương về xác định sứ mệnh, xây dựng quan hệ trước khi cần đến, ghi nhớ tên, trò chuyện xã giao, giữ liên lạc, xây dựng thương hiệu cá nhân, tìm người đỡ đầu và “Thời đại nối kết”.
+
+Lý do quan trọng nhất khiến em lựa chọn cuốn sách chính là quan điểm xuất hiện rất sớm trong sách: con người không thể tiến quá xa nếu chỉ dựa vào bản thân. Tác giả cho rằng điểm xuất phát, tài năng hay trí thông minh đều quan trọng, nhưng chúng không đủ nếu con người không hiểu được sức mạnh của các mối quan hệ.
+
+Đối với em, đây là một chủ đề đáng để tìm hiểu bởi trong môi trường đại học, sinh viên thường tập trung vào điểm số, kiến thức chuyên môn hoặc kỹ năng cá nhân. Cuốn sách lại đưa ra một góc nhìn khác: khả năng hợp tác, tạo niềm tin và duy trì quan hệ với người khác cũng là một phần quan trọng trong quá trình phát triển bản thân.
+
+</aside>
+
+> 2 . CẢM NHẬN CHUNG VÈ QUYỂN SÁCH
+> 
+
+<aside>
+
+Tác phẩm đã để lại cho bản thân em một cảm nhận rất trầm lắng về câu nói *“Đừng bao giờ đi ăn một mình”*, ý nghĩa của nó thực chất không cổ vũ việc “lợi dụng quan hệ” để thành công. Trái lại, một trong những điều tác giả lặp lại nhiều lần là muốn có một mạng lưới quan hệ tốt thì trước hết phải biết cho đi.
+
+Dừng lại ở chương “Đừng ghi sổ”, tác giả tóm tắt một trong những chìa khóa của thành công bằng khái niệm “ sự quảng đại” ****. Kết nối được miêu tả như một quá trình liên tục giữa cho và nhận: con người giúp đỡ nhau, chia sẻ thời gian, kinh nghiệm và nguồn lực, từ đó cả hai phía đều có thể nhận được giá trị.
+
+Điều này làm thay đổi cách em hiểu về từ “networking”. Trước đây, khi nghe đến xây dựng quan hệ, em dễ liên tưởng đến việc gặp thật nhiều người, xin thông tin liên lạc hoặc cố gắng quen những người có vị trí cao. Nhưng sách lại phân biệt khá rõ giữa việc tạo quan hệ thật sự và việc chỉ thu thập danh thiếp. Trong chương “Tạo mối quan hệ một cách tích cực”, tác giả phê phán kiểu người luôn tìm kiếm “người quan trọng hơn” để tiếp cận và xem các mối quan hệ như công cụ phục vụ tham vọng cá nhân. Theo cách nhìn trong sách, kiểu giao tiếp đó không tạo ra được những quan hệ có ý nghĩa lâu dài.
+
+Khía cạnh mà em thích ở cuốn sách là tác giả không xây dựng hình ảnh bản thân như một người hoàn hảo ngay từ đầu. Ông kể khá nhiều trải nghiệm của mình, từ hoàn cảnh gia đình, những ngày làm việc ở sân golf, việc học ở Harvard cho đến những sai lầm trong quá trình xây dựng sự nghiệp. Qua đó, những nguyên tắc của sách được trình bày thông qua các câu chuyện và trải nghiệm cụ thể chứ không chỉ tồn tại dưới dạng lý thuyết.
+
+![ae57643678b9774689b9d1ef0f9c2093.jpg](f00b73d2-7b27-43f9-b825-293fd1ee377d.png)
+
+Một câu chuyện để lại ấn tượng với em là khi tác giả còn làm việc ở sân golf. Ông quan sát thấy những người thành công không hoạt động hoàn toàn độc lập. Họ giúp nhau tìm công việc, hỗ trợ ý tưởng của nhau, tạo cơ hội cho con cái và chia sẻ các nguồn lực. Từ đó tác giả nhận thấy mạng lưới bạn bè và đồng nghiệp có ảnh hưởng rất lớn đến khả năng phát triển của một con người.
+
+Đặc biệt là sự chuyển biến từ tư duy  “xây dựng mạng lưới” sang tư duy **c**hăm sóc và tạo giá trị cho nhau . Ông mô tả việc kết nối là chia sẻ kinh nghiệm, nguồn lực, thời gian, công sức, tình cảm và sự đồng cảm để đem lại giá trị cho người khác, đồng thời làm phong phú cuộc sống của chính mình.
+
+Vì vậy, sau khi nghiên cứu , em cảm thấy thông điệp của cuốn sách không nằm ở việc “biết càng nhiều người càng tốt”, mà nằm ở câu hỏi: Mình xây dựng mối quan hệ với người khác như thế nào và mình mang lại giá trị gì trong mối quan hệ đó?
+
+</aside>
+
+> 3. **NHỮNG NỘI DUNG MÀ EM TÂM ĐẮC NHẤT**
+> 
+
+<aside>
+
+Sau khi đọc sách và áp dụng vào cuộc sống, em đã ngộ nhận ra được ý nghĩa thật sự sau những giá trị mà tác giả muốn truyền đạt, và đây là một trong những nội dung mà em tâm đắc nhất**.**
+
+***“Đừng ghi sổ” – cho đI nhưng không tính toán ngay việc nhận lại***
+
+Trong cuộc sống bận rộn, mệt mỏi , con người rất dễ  sinh ra tâm lý: “Tôi giúp bạn việc này thì sau này bạn phải giúp lại tôi một việc tương đương”. Nhưng tác giả phản đối cách xây dựng quan hệ giống như một cuốn sổ nợ.
+
+Theo ông, mạng lưới chỉ thực sự phát triển khi mọi người hiểu rằng họ cần nhau, và việc giúp đỡ không nên được tính toán theo kiểu mỗi việc làm đều phải nhận được một lợi ích tương đương ngay lập tức. Tác giả cho rằng càng giúp được nhiều người thì khả năng nhận được sự giúp đỡ và tiếp tục giúp người khác càng tăng lên.
+
+Điều làm em cảm thấy có ý nghĩa ở đây là sự khác biệt giữa quan hệ và giao dịch. Một giao dịch thường kết thúc khi hai bên trao đổi xong giá trị. Nhưng một mối quan hệ có thể kéo dài rất lâu. Nếu lúc nào cũng tính xem mình đã cho bao nhiêu và người kia nợ mình bao nhiêu thì mối quan hệ rất khó trở nên chân thành.
+
+Sách kết luận khá rõ rằng tốt hơn nên cho trước khi nhận và không nên “ghi sổ” những gì mình đã làm cho người khác. Đối với em đây là một nguyên tắc không chỉ áp dụng được rất nhiều lĩnh vực trong cuộc sống như học tâp, làm việc, lao động…mà còn áp dụng được vào việc xây dựng các mối quan hệ xung quanh ta.
+
+***“Hãy xây dựng sẵn trước khi cần đến”**.*
+
+![download.png](3090742e-3b66-4206-971a-6bba703a2fef.png)
+
+Tác giả cho rằng một sai lầm lớn của nhiều người là chỉ nghĩ đến việc xây dựng quan hệ khi họ đang cần điều gì đó, ví dụ như khi thất nghiệp hoặc muốn tìm một cơ hội mới. Trong khi đó, những người có mạng lưới tốt thường xây dựng các mối quan hệ từ rất lâu trước khi họ cần nhờ đến sự giúp đỡ.
+
+Đối với một sinh viên năm ba, em thấy bài học này khá thực tế. Nếu chỉ đến năm cuối hoặc sau khi tốt nghiệp mới bắt đầu tìm hiểu doanh nghiệp, làm quen với những người trong ngành hoặc liên hệ với giảng viên và những anh chị đi trước thì có thể đã khá muộn. Xây dựng quan hệ theo tinh thần của cuốn sách không phải là đợi đến lúc cần việc rồi mới tìm người giúp, mà là duy trì sự kết nối từ trước thông qua học tập, hoạt động, trao đổi và hỗ trợ nhau. Điều quan trọng là mối quan hệ được hình thành một cách tự nhiên trước khi một lợi ích cụ thể xuất hiện.
+
+***Không được “biến mất”***
+
+Tên sách *“ Đừng bao giờ đi ăn một mình”*  theo cảm nhận của em mang tính biểu tượng nhiều hơn là một mệnh lệnh theo nghĩa đen.
+
+Trong chương cùng tên, tác giả đưa ra nguyên tắc: không được biến mất khỏi mạng lưới của mình. Ông khuyến khích tận dụng những cơ hội gặp gỡ, những bữa ăn, hội thảo và sự kiện để duy trì sự hiện diện và tương tác với mọi người.
+
+Điều này được phát triển rõ hơn ở chương “Pinging – mọi lúc mọi nơi”. “Pinging” được tác giả dùng để chỉ những lời chào hỏi và tương tác ngắn, tự nhiên nhằm duy trì liên hệ. Theo sách, một mạng lưới nếu không được chăm sóc thì sẽ dần yếu đi; vì vậy, giữ liên lạc là một quá trình liên tục chứ không phải chỉ liên hệ khi có việc.
+
+Em đặc biệt thích ý này vì nó rất đời thường.
+
+Nhiều khi chúng ta từng học chung, làm chung hoặc gặp một người rất hợp, nhưng sau đó không ai chủ động liên hệ và dần trở thành người xa lạ. Cuốn sách khiến em nhận ra rằng một mối quan hệ không tự nhiên tồn tại mãi. Nó cần được duy trì.
+
+***Hiểu điều người khác thực sự mong muốn***
+
+Khi chuyển sang phần “Biến kết nối thành bạn đồng hành”, tác giả đặt ra một câu hỏi rất đơn giản: “Thật sự anh muốn gì?”
+
+Theo sách, hiểu mục tiêu và điều quan trọng đối với một người sẽ giúp chúng ta xây dựng mối quan hệ sâu sắc hơn. Người kết nối tốt phải học cách quan sát, tìm hiểu điều người khác thực sự quan tâm thay vì chỉ nghĩ đến mục tiêu của chính mình.
+
+Em cho rằng đây là một điểm rất đáng suy nghĩ.
+
+Trong nhiều cuộc giao tiếp, con người thường tập trung chuẩn bị điều mình muốn nói nhưng lại ít đặt câu hỏi về điều người đối diện đang cần. Nếu chỉ nói mà không hiểu người khác thì cuộc trò chuyện dù kéo dài vẫn có thể rất hời hợt.
+
+</aside>
+
+![ba2060ec4840e0268fee106676cd8410.jpg](ba2060ec4840e0268fee106676cd8410.jpg)
+
+> **4 . NỘI DUNG TRONG SÁCH VỚI GIAO TIẾP TRONG CUỘC SỐNG**
+> 
+
+<aside>
+
+Theo em, giá trị lớn của cuốn sách nằm ở việc có thể đưa nhiều nguyên tắc của sách ra khỏi môi trường kinh doanh và áp dụng vào giao tiếp thông thường.
+
+Trước hết là **sự chủ động**.
+
+Một mối quan hệ rất hiếm khi phát triển nếu cả hai người đều đợi người còn lại bắt chuyện. Việc chào hỏi trước, hỏi thăm, mời một người cùng tham gia hoạt động hoặc chủ động gửi lời cảm ơn sau một cuộc gặp đều là những hành động nhỏ nhưng có thể mở đầu cho một mối quan hệ.
+
+Chương “Theo dõi hay thất bại” nhấn mạnh rằng sau khi gặp một người mà mình muốn xây dựng quan hệ, cần có hành động tiếp nối để mình không nhanh chóng biến mất khỏi trí nhớ của họ.
+
+Thứ hai là **giao tiếp phải dựa trên sự tôn trọng.**
+
+Nếu chỉ tiếp xúc với người mà mình cho rằng có thể mang lại lợi ích thì rất dễ biến networking thành một hành vi vụ lợi. Sách chính bản thân nó cũng cảnh báo về kiểu người chỉ tập trung vào những người có quyền lực và coi nhẹ những người khác.
+
+Thứ ba là **biết cho đi.**
+
+Trong môi trường đại học, cho đi không nhất thiết phải là tiền bạc hay một cơ hội lớn. Đôi khi chỉ là gửi tài liệu cho bạn học, chia sẻ một kinh nghiệm mình biết, giới thiệu một người phù hợp cho một nhóm, giúp một thành viên khi làm bài tập chung hoặc dành thời gian lắng nghe người khác.
+
+Theo cách em hiểu cuốn sách, chính những hành động nhỏ đó dần tạo nên niềm tin.
+
+Và cuối cùng là **duy trì quan hệ**. Một cuộc gặp tạo ra kết nối, nhưng chưa chắc đã tạo ra quan hệ. Quan hệ hình thành từ quá trình tương tác lặp lại, chia sẻ và hỗ trợ nhau theo thời gian. Vì vậy, “pinging” là một ý tưởng khá đơn giản nhưng có tính thực tế cao: đôi khi chỉ cần một tin nhắn hỏi thăm hoặc lời chúc đúng lúc cũng đủ để nhắc rằng mối quan hệ đó vẫn được quan tâm
+
+</aside>
+
+> 
+> 
+> 1. **LIÊN HỆ VỚI AI TRONG THỜI ĐẠI HIỆN NAY**
+
+<aside>
+
+Một điểm khiến em thấy cuốn sách vẫn có giá trị khi liên hệ với thời đại AI hiện nay chính là việc tác giả đặt con người ở vị trí trung tâm.
+
+Ở chương cuối “Thời đại nối kết”, sách nói về một thế giới ngày càng được kết nối thông qua công nghệ và Internet. Tuy nhiên, tác giả vẫn nhấn mạnh rằng công nghệ không thay thế được bản chất và chất lượng của các mối quan hệ giữa con người.
+
+Nếu liên hệ điều đó với AI, em cho rằng AI có thể trở thành một công cụ hỗ trợ rất mạnh trong học tập và giao tiếp. Một sinh viên có thể dùng AI để hỗ trợ tìm cách diễn đạt, chuẩn bị nội dung trước một cuộc trao đổi, hệ thống hóa thông tin, luyện cách trình bày hoặc xây dựng kế hoạch cho một công việc.
+
+Nhưng theo suy nghĩ của em**,** AI không nên trở thành lý do để con người giảm giao tiếp thật với nhau. Chẳng hạn, AI có thể giúp mình soạn một tin nhắn, nhưng việc quan tâm đến người nhận tin nhắn vẫn phải đến từ bản thân mình. AI có thể giúp chuẩn bị câu hỏi trước một cuộc gặp, nhưng khả năng lắng nghe người đang ngồi trước mặt mình vẫn thuộc về con người. AI có thể hỗ trợ tạo ra nội dung cho hồ sơ cá nhân, nhưng sự tin tưởng mà người khác dành cho mình phải được xây dựng qua hành động và cách mình đối xử với họ.
+
+Điều này làm em liên tưởng đến chương xây dựng thương hiệu cá nhân. Trong sách, tác giả cho rằng mỗi người đều tạo ra một nhận dạng thông qua cách giao tiếp, hành động và thông điệp mà mình thể hiện. Một thương hiệu cá nhân tốt cần có sự nhất quán và đáng tin cậy.
+
+Trong bối cảnh nhiều nội dung có thể được hỗ trợ tạo ra bằng AI, sự nhất quán giữa điều một người thể hiện và điều họ thực sự làm có thể càng quan trọng. Một người có thể dùng công nghệ để trình bày bản thân tốt hơn, nhưng nếu những gì thể hiện ra ngoài không tương ứng với khả năng, thái độ và hành động thực tế thì mối quan hệ vẫn khó duy trì lâu dài.
+
+Qua đó, điều em rút ra không phải là “AI đối lập với giao tiếp con người”. Ngược lại, AI có thể hỗ trợ con người giao tiếp tốt hơn nếu chúng ta biết dùng đúng vai trò. Công nghệ có thể hỗ trợ kết nối; còn niềm tin, sự quan tâm và giá trị của một mối quan hệ vẫn phải được hình thành giữa con người với con người. Đây là cách em liên hệ tinh thần của cuốn sách với AI, chứ không phải một kết luận trực tiếp được tác giả viết trong sách.
+
+</aside>
+
+> 
+> 
+> 1. LIÊN HỆ BẢN THÂN
+
+<aside>
+
+Ở vị trí một sinh viên năm ba, điều đầu tiên em nhận ra sau khi đọc cuốn sách là mình không nên chờ đến khi tốt nghiệp hoặc cần tìm việc mới bắt đầu quan tâm tới các mối quan hệ.
+
+Trong những năm học đại học, những người xung quanh mình như bạn bè, giảng viên, anh chị khóa trên hoặc những người gặp trong quá trình học tập đều có thể trở thành những mối quan hệ có ý nghĩa trong tương lai. Tuy nhiên, bài học mà em rút ra từ sách không phải là phải cố gắng làm quen với tất cả mọi người để sau này “nhờ vả”, mà là nên học cách xây dựng quan hệ tự nhiên, lâu dài và có sự trao đổi giá trị.
+
+Em cũng nhận thấy mình cần chú ý hơn đến việc chủ động giao tiếp. Không phải ai cũng dễ dàng bước vào một nhóm người lạ và bắt chuyện.
+
+Vì vậy, thay vì đặt mục tiêu trở thành một người nói chuyện thật giỏi ngay lập tức, em có thể bắt đầu từ những việc nhỏ hơn: chủ động chào hỏi, nhớ tên, lắng nghe khi người khác nói, hỏi những điều mình thực sự quan tâm và giữ liên lạc sau những cuộc gặp quan trọng.
+
+Một nội dung khác mà em muốn áp dụng vào bản thân là xác định mình thực sự muốn gì. Sách nhấn mạnh rằng mục tiêu càng rõ thì càng dễ xây dựng một chiến lược phù hợp và kết nối với những người có thể đồng hành với mình.
+
+Ở năm ba đại học, câu hỏi này đối với em quan trọng hơn trước: mình muốn phát triển theo hướng nào, cần bổ sung kỹ năng nào, mình có thể đem lại giá trị gì và mình muốn trở thành người như thế nào khi bước vào môi trường làm việc?
+
+Em nghĩ đây là phần cuốn sách khiến em suy nghĩ nhiều hơn cả. Vì trước khi hỏi “Mình cần quen ai?”, có lẽ cần trả lời câu hỏi “Mình muốn đi đâu?”. Khi bản thân chưa biết mục tiêu của mình, việc có thật nhiều mối quan hệ cũng chưa chắc đã giúp mình tiến về một hướng rõ ràng.
+
+Ngoài ra, chương “Đừng bao giờ kiêu căng” cũng là một lời nhắc mà em cho rằng rất cần thiết. Tác giả cảnh báo rằng khi một người ngày càng tiếp cận được nhiều người có quyền lực hoặc có vị trí, họ rất dễ sinh ra cảm giác bản thân cũng trở nên quan trọng hơn người khác. Vì vậy, tác giả nhắc người đọc không để sự phù hoa, thái độ ban ơn hay kỳ vọng quá mức làm mất những giá trị ban đầu của việc kết nối.
+
+Đối với em, đây là yếu tố giúp tư tưởng của cuốn sách cân bằng hơn. Mục đích cuối cùng không phải là xây dựng một danh sách những người “có ích”, mà là học cách sống và làm việc trong một cộng đồng mà mọi người có thể tạo giá trị cho nhau.
+
+</aside>
+
+> 7  **. ĐÁNH GIÁ CỦA EM VỀ QUYỂN SÁCH**
+> 
+
+<aside>
+
+Sau khi đọc và phân tích, em đánh giá *“Đừng bao giờ đi ăn một mình”* là một cuốn sách có giá trị lớn nhất ở cách thay đổi quan niệm của người đọc về xây dựng mối quan hệ.
+
+Điều em đánh giá cao nhất là sách không chỉ hướng dẫn cách tiếp cận người khác mà còn xây dựng một hệ tư tưởng tương đối rõ: xác định mục tiêu của bản thân, chủ động kết nối, cho đi trước khi mong nhận lại, duy trì liên lạc, hiểu điều người khác quan tâm, tạo giá trị cho cộng đồng và không để các mối quan hệ biến thành công cụ thỏa mãn cái tôi.
+
+Cấu trúc từ “Xác định quan điểm” sang “Các kỹ năng”, sau đó đến “Biến nối kết thành bạn đồng hành” và cuối cùng là “Trao đổi – cho và nhận” cũng làm em cảm thấy nội dung được phát triển theo một quá trình
+
+Người đọc không chỉ được hướng dẫn cách gặp người khác, mà còn được dẫn đến câu hỏi quan trọng hơn là làm thế nào một sự quen biết có thể trở thành một mối quan hệ có giá trị lâu dài.
+
+Điểm em tâm đắc nhất vẫn là tư tưởng “cho trước khi nhận”. Nó làm cho networking không còn mang cảm giác vụ lợi. Trong chương đầu, tác giả mô tả việc liên kết là chia sẻ nguồn lực, kinh nghiệm, thời gian, công sức và sự đồng cảm để tạo ra giá trị cho người khác đồng thời làm giàu thêm cuộc sống của chính mình.
+
+Tuy nhiên, ở góc độ cảm nhận cá nhân, em cũng cho rằng không nên áp dụng tất cả lời khuyên trong sách một cách máy móc. Ví dụ, việc luôn tận dụng mọi bữa ăn hay mọi sự kiện để kết nối có thể phù hợp với phong cách và môi trường làm việc của tác giả, nhưng mỗi người có tính cách và hoàn cảnh khác nhau. Điều quan trọng hơn là hiểu nguyên tắc phía sau: đừng tự cô lập mình và đừng chỉ tìm đến người khác khi cần họ.
+
+Điều em giữ lại sau cuốn sách không phải là suy nghĩ rằng muốn thành công thì phải quen thật nhiều người. Ngược lại, bài học lớn hơn đối với em là: Một mối quan hệ tốt không bắt đầu từ câu hỏi “Người này có thể giúp gì cho mình?”, mà nên bắt đầu từ câu hỏi “Mình có thể tạo ra giá trị gì trong mối quan hệ này?”
+
+Đến cuối sách, tác giả một lần nữa đưa người đọc trở về với yếu tố con người. Trong “Thời đại nối kết”, ông cho rằng kiến thức, vị trí hiện tại và những gì một người có được đều chịu ảnh hưởng từ ý tưởng, kinh nghiệm và những con người mà họ từng tiếp xúc. Cuối cùng, điểm quan trọng nhất vẫn là con người và khả năng cùng nhau tạo nên những điều mà một cá nhân khó có thể thực hiện một mình.
+
+Vì vậy, đối với em, Đừng bao giờ đi ăn một mình không chỉ là một cuốn sách về kỹ năng giao tiếp. Nó khiến em nhìn lại cách mình đối xử với các mối quan hệ, cách mình xác định con đường của bản thân và cách mình có thể phát triển cùng với những người xung quanh. Đây cũng là giá trị lớn nhất mà em nhận được sau khi đọc cuốn sách.
+
+</aside>
+
+*“Đừng bao giờ đi ăn một mình”* giúp em nhận ra rằng thành công không chỉ đến từ năng lực cá nhân mà còn được xây dựng từ những mối quan hệ chân thành, sự chủ động kết nối và tinh thần sẵn sàng cho đi, từ đó nhắc nhở em biết trân trọng con người và xây dựng những giá trị bền vững hơn trong học tập, công việc cũng như cuộc sống.
+
+![8891f3f86d9fd9f35ab67f6cc325a2df.jpg](83b2d02a-9670-409b-a843-c7ae585016ed.png)
